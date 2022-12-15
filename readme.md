@@ -1,1 +1,1 @@
-Ushtrimi i 3 
+Ushtrimi i 3 ne html.
